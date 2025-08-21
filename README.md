@@ -58,5 +58,5 @@ En continuant à utiliser AI Tactical, vous acceptez ces changements.
 
 🔹 9. Nous Contacter
 Pour toute question ou préoccupation liée à la confidentialité :
-📧 Email : contact@aitacticalanalysis.com
+📧 Email : elitesport.tn@gmail.com
 🌐 Site web : https://aitacticalanalysis.com
